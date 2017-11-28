@@ -1,11 +1,18 @@
-# Labor is LOVE
+# *Labor is LOVE
+
+> We have to be there at the birth of ideas, the bursting outward of their force: not in books expressing them, but in events manifesting this force, in struggles carried on around ideas, for or against them.
+― Michel Foucault
 
 ## What is it?
 This is a theme gathering with the absolute theme being `labor in the 21st Century`.
 
 What I organised as the gathering was to first have a lot of people from extremely varying disciplines gathered in a giant dance theatre (which is just an empty space with soft floor). Then I asked them to make small presentations to each other, with a medium and content they choose. From poetry to workshops, it was very diverse yet sophisticated. We have cooperated from beginning to the end.
 
-The goal is to have such gatherings more in order to create a culture that promotes sharing, gathering and discussing more to embrace and transform the "work" conditions in the future, to one in which we can love the labor we do in our everyday lives.
+The goal is to have such gatherings more in order to create a culture that promotes sharing knowledge, gathering and discussing issues more to embrace and transform the "work" conditions in the future, to one in which we can love the labor we do, and eventually we do what we love, in our everyday lives...
+
+We had very cosy lighting, a home-like atmosphere, with vegan food and healthy cocktails made by participants, and a party at the end (the whole thing was quite like a party indeed)...
+
+It lasted from 14:00 to 02:00 the day after.
 
 You can get more information here: [laborislove.se] (http://laborislove.se/)
 
